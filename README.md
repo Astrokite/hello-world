@@ -1,2 +1,7 @@
 # hello-world
-Good news, it's a repository
+
+All non essential functions halted
+
+Awaiting resume authorization
+
+Don't forget about us
